@@ -1,1 +1,0 @@
-# jdgarre.github.io
